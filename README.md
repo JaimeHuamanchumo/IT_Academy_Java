@@ -1,1 +1,0 @@
-# ITacademy_Especialidad
